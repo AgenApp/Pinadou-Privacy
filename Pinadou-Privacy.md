@@ -1,5 +1,5 @@
 # Pinadou Pinadou-Privacy
-Privacy Policy  
+
 ----------------
 
 ### Introduction  
