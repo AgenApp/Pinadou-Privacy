@@ -1,4 +1,4 @@
-# Ahmet Genel TERMS OF SERVICE
+# PINADOU TERMS OF SERVICE
 
 Last Updated: 07/27/2023
 
